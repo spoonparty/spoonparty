@@ -67,6 +67,10 @@ Some people come in costumes, some people in lingerie, some in jeans and a t-shi
 
 We provide a space, soft things to lie on, and snacks. Please feel free to bring your favourite brands of safer sex equipment, toys, and booze in moderation. If you tend to be messy, bringing a waterproof blanket can be prudent.
 
+### Scent policy
+
+Spoon encourages you to wear few to no scents, perfumes, colognes, aftershave, or scented sprays to the party. We're all in close quarters together and what might smell good to you might trigger nausea or migraines in others.
+
 ### Photo/social media/privacy policy
 For the safety and privacy of all party attendees, Spoon is a strictly no photo/no recording event (even in the social spaces). We acknowledge that people might have to have their phones with them during the evening, but cameras and phones are not allowed in any of the play spaces. We want you to feel comfortable being in a sexual space without having to think about your sexual activities possibly being recorded or shared online in the future.
 
