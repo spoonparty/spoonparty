@@ -1,4 +1,4 @@
-## Welcome to Spoon (because spooning is cute and we needed a name)
+## Welcome to Spoon<br>(because spooning is cute and we needed a name)
 
 ### What is Spoon?
 Spoon is a sex-positive community in Edmonton, AB, founded on the idea that sex-positive culture flowers most readily in an environment of trust and shared values. For this reason, everyone who comes to Spoon is invited by someone else who has already attended, and is asked to understand, endorse and uphold our values before being included. Spoon is special because of the great care we take to create a safe and comfortable environment. There are a few basic ideas that guide how we shape our space:
